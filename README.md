@@ -1,2 +1,0 @@
-# SIGED-certificado-preparatoria-autenticacion-JAPC060708HMCMTRA9
-JAPC060708HMCMTRA9
